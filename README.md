@@ -1,0 +1,3 @@
+Welcome to the Euclase Information Hub!
+This website provides comprehensive insights into Euclase, a fascinating mineral known for its brilliant blue and green hues. Explore detailed information about its chemical composition, color variations, formation process, and global locations. You can navigate through different sections, including the homepage for a quick introduction, a dedicated content page with in-depth facts about Euclase, and a feedback page where we welcome your thoughts and suggestions. Whether you're a gem enthusiast or just curious, we hope you find this resource both informative and engaging!
+
